@@ -2,7 +2,7 @@
 - 👀 I’m interested in WEB DEVELOPMENT  
 - 🌱 I’m currently learning DSA, WEB DEVELOPMENT, GITHUB, GIT etc.
 - 💞️ I’m looking to collaborate on different projects.
-- 📫 How to reach me abhisheksingh.10032004@gmail.com
+- 📫 How to reach me abhiwork2026@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: chilling
 
